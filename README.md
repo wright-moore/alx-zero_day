@@ -1,1 +1,1 @@
-My first readme
+Join me, ye champions
