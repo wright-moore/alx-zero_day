@@ -1,1 +1,1 @@
-Join me, ye champions
+Join me, ye champions.
